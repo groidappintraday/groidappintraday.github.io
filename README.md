@@ -1,1 +1,1 @@
-# groidappintraday.github.io
+# groidappintraday
